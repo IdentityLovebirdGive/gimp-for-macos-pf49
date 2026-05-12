@@ -1,4 +1,4 @@
-# 
+# elite CorelDRAW for macOS Template | AI upscaling + plugin support offers the most advanced CorelDRAW for macOS template, with AI upscaling and plugin support. Ideal for
 
 
 
